@@ -1,5 +1,5 @@
 - 👋 Hi, I’m ABHISHEK KUMAR MAHATO
-- 👀 I’m interested in - CODEING AND SOLVE PROBLEM
+- 👀 I’m interested in - CODING AND SOLVE PROBLEM
 - 🌱 I’m currently learning -  ANDROID STUDIOS- JAVA
 - 💞️ I’m looking to collaborate on - ANDROID STUDIOS
 - 📫 How to reach me- email - sonukr24082001@gmail.com
